@@ -1,5 +1,6 @@
 
-Hello everyone, I'm Ruesandora. You can join my community that I created with educational content in the crypto field and improve yourself in this field.
+Hello everyone, I'm Ruesandora. 
+You can join my community that I created with educational content in the crypto field and improve yourself in this field.
 
 ----------------------------------
 Our forum link we created for knowledge sharing 
