@@ -9,11 +9,14 @@ https://forum.rues.info/index.php
 My twitter account where I share news, development and many content
 https://twitter.com/ruesandora0
 ----------------------------------
+
 My Telegram channels for chatting and AMAs :
 
 https://t.me/RuesAnnouncement
-https://t.me/RuesNode
 https://t.me/RuesChat
+https://t.me/RuesNode
+
+
 ----------------------------------
 My personal website
 https://rues.info/
